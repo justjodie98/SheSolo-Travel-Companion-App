@@ -1,0 +1,1 @@
+# SheSolo-Travel-Companion-App
